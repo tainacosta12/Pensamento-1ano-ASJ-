@@ -1,0 +1,1 @@
+# Pensamento-1ano-ASJ-
